@@ -1,4 +1,4 @@
-# INeverConfessed2ThisB4IResignedFromPennBCOfUrPostingAndOtherPostingsButMainlyUrs100PercentTruth
+# INeverConfessed2ThisB4I[ResignedFromPenn](https://www.youtube.com/shorts/BRKUG3AtoF4)BCOfUrPostingAndOtherPostingsButMainlyUrs100PercentTruth
 
 i hadnt even applied yet
 
