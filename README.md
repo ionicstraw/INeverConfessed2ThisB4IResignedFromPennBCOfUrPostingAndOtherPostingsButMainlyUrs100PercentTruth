@@ -30,4 +30,12 @@ understand all of this. i am like a competitive asian man (like the ones that we
 
 im there to work. i was always there to work.
 
+i found out about the igem competition when i was studying for my microbiology final and i was looking for a picture of like bacterial conjugation and an igem team's picture came up, and like within 10mins i was reading about igem and figuring out what it was (this was at like 3 am) BUT i went on the list of teams and thought, u know if rutgers has a team, ill def join it. then i saw in the list of teams, rutgers wasnt on the list.
+
+the immediate thought that came in to my mind at like 3 am was, and ive never shared this with anyone, it was "if theres anyone in this entire fking school who could start an igem team, its me" i know who i am, i wake up everyday and im glad to be who i am and im learning that being laid off or whatveer and not having a job doesnt define me, but, i know what im capable of doing with my talents and my skills (i just havent taken grad level classes yet). so similarily, i wrote down everything in my personal statement, bc i know, i can do it. my parents raised me to be the best at whatever it is that im doing, even if its a hobby like makeup (u know my brother's hobby is learning about and fixing cars, using his engineering undergrad degree, hes really good at it).
+
+i want all of it to work out. i want for all of this to be a success.
+
+im busy thinking about things, i just dont want to talk to anyone, its not personal. if i dont update this everyday its bc im just figuring personal things out about myself and i dont want to talk about it in public bc i dunno who is reading this. like i need to go to fking the gym and i havent been all month.
+
 ---------
