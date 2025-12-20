@@ -38,4 +38,8 @@ i want all of it to work out. i want for all of this to be a success.
 
 im busy thinking about things, i just dont want to talk to anyone, its not personal. if i dont update this everyday its bc im just figuring personal things out about myself and i dont want to talk about it in public bc i dunno who is reading this. like i need to go to fking the gym and i havent been all month.
 
+* i meant to say albania not armenia, i dunno about the latter but i see videos of ppl, like americans move to albania and work remotely, apparently the housing is cheap, its a nice place to live, food is good and ppl are nice
+* im going to turn into a agoraphobic person bc of all of this remote work over the yrs, all yr i didnt leave house that much, i gotta go to the gym like every other day starting sunday or even to the library
+* planning on getting just a little bit of lip filler in january, like only half a syringe, barely noticable, just barely
+
 ---------
